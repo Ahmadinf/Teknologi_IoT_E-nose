@@ -1,1 +1,0 @@
-# Teknologi_IoT_E-nose
